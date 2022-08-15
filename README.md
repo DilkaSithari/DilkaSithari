@@ -15,7 +15,6 @@ Programmer | Blogger | Learner
 
 - ⚡ Fun fact **I am Happy**
 
-### Connect with me:
 
 <br />
 
